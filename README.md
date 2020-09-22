@@ -1,0 +1,1 @@
+# laazycmd.github.io
